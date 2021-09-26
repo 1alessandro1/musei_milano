@@ -1,4 +1,12 @@
-# Musei Civici di Milano: orari e giorni di apertura
+In questa lista sono presenti:
+
+
+1. Musei Civici 
+2. Case Museo
+3. Musei di Milano
+
+
+# 1. Musei Civici di Milano: orari e giorni di apertura
 
 ### Pinacoteca di Brera (riapertura da martedì 4 maggio)
   -  Via Brera, 28
@@ -187,7 +195,7 @@
 ![6123-muba-museo-dei-bambini-milano](https://user-images.githubusercontent.com/46293832/134825846-3dfa458a-3535-4a67-9595-70056ec4d326.jpg)
 
 
-# Case Museo di Milano: orari e giorni di apertura
+# 2. Case Museo di Milano: orari e giorni di apertura
 
 ### Casa Museo Boschi di Stefano (riapertura martedì 27 aprile)
   -  Via Giorgio Jan,15 – Milano
@@ -247,7 +255,7 @@
 
 
 
-# Musei di Milano: orari e giorni di apertura
+# 3. Musei di Milano: orari e giorni di apertura
 
 ###  Fabbrica del Vapore (riapertura da lunedì 26 aprile)
   -  Via Giulio Cesare Procaccini, 4
