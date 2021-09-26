@@ -196,6 +196,11 @@
   -  **Descrizione**: La Casa-Museo Boschi Di Stefano è una dimora storica di Milano. È situata al secondo piano di un edificio di via Giorgio Jan al numero civico 15. 
 
 
+![home_08](https://user-images.githubusercontent.com/46293832/134826768-50c199f7-990a-4b48-86aa-66f09fb3841f.jpg)
+![home_02](https://user-images.githubusercontent.com/46293832/134826770-37af9c30-4692-461b-882d-e8919605a13f.jpg)
+![home_05](https://user-images.githubusercontent.com/46293832/134826771-50cf5af2-53ce-4577-b7e2-02fbc2fb3dd9.jpg)
+
+
 
 
 
@@ -205,16 +210,42 @@
   -  Sabato e domenica dalle 10 alle 17.45
   -  Biglietti: Intero € 10, ridotto € 7
   -  **Descrizione**: Il Museo Bagatti Valsecchi è una dimora storica ubicata nel quartiere Montenapoleone, nel centro di Milano. "Palazzo Bagatti Valsecchi", che ospita il museo, fu acquistato dalla Regione Lombardia nel 1975 ed è fra le più importanti e meglio conservate case museo d'Europa.
+
+
+
+![cover-2017](https://user-images.githubusercontent.com/46293832/134826804-25468cfe-a249-444d-904c-68aa68ad38af.jpg)
+
+![bagatti-valsecchi-1](https://user-images.githubusercontent.com/46293832/134826809-586bdf0b-c847-4ab8-a354-2f8d6fa3adb0.jpg)
+
+
 ### Casa Museo Poldi Pezzoli (riapertura martedì 27 aprile)
   -  Via Manzoni, 12
   -  Dal lunedì alla domenica dalle 10 alle 18. Chiuso il martedì 
   -  Biglietti: Intero € 10, ridotto € 7
   -  **Descrizione**: il Museo Poldi Pezzoli è una casa museo situata nella centrale via Manzoni a Milano; fu creato dal conte Gian Giacomo Poldi Pezzoli che, mediante disposizione testamentaria del 1871.
+
+
+
+![museo-poldi-pezzoli-apertura-in-fase-2](https://user-images.githubusercontent.com/46293832/134826851-01dc921f-7709-4d29-a39f-3e3a634011e1.jpg)
+![1620228823](https://user-images.githubusercontent.com/46293832/134826852-f87ac305-fbf1-4c52-9f27-f86a40b94245.jpg)
+
+
+
+
+
+
 ### Villa Necchi Campiglio (riapertura martedì 27 aprile)
   -  Via Mozart, 14
   -  mercoledì – domenica dalle 10 alle 18
   -  Biglietti: intero 14 €, ridotto bambini (5-18 anni) 4 €, ridotto universitari 7 €
-  -  Descrizione: Villa Necchi Campiglio è una dimora storica che fa parte del circuito delle "Case museo di Milano".
+  -  **Descrizione**: Villa Necchi Campiglio è una dimora storica che fa parte del circuito delle "Case museo di Milano".
+ 
+
+![La-Veranda](https://user-images.githubusercontent.com/46293832/134826877-04f34752-a8a7-4bfc-b052-c676d2f0ed04.jpg)
+![1614594376](https://user-images.githubusercontent.com/46293832/134826879-43678447-c83b-4e8d-aff3-dbcd7d478454.jpg)
+
+
+
 
 # Musei di Milano: orari e giorni di apertura
 
@@ -225,25 +256,63 @@
   -  Ultimo ingresso 30 minuti prima della chiusura
   -  Prenotazione consigliata, ma non obbligatoria (la mostra ospitata è Frida Kahlo: Il caos dentro, prolungata fino al 2 maggio 2021)
   -  **Descrizione**: La Fabbrica del Vapore è stato un complesso industriale di prodotti rotabili tranviari e ferroviari, oggi riqualificata come polo multifunzionale. Si trova a Milano, in via Giulio Cesare Procaccini, vicino al cimitero Monumentale. 
+
+
+
+![fabbrica-del-vapore-milano](https://user-images.githubusercontent.com/46293832/134826901-8a8210fb-3083-4178-8660-377d02b1287b.jpg)
+![DSC_8403](https://user-images.githubusercontent.com/46293832/134826903-15e955e7-4147-4f43-9fb3-aa42aee2b742.jpg)
+
+
+
+
+
 ###  Triennale Milano   (apertura mercoledì 28 aprile)
   -  Viale Alemagna, 6
   -  Martedì – domenica dalle 11 alle 20
   -  Ultimo ingresso un’ora prima della chiusura
   -  Biglietti: 10 euro (intero) / 8,50 euro (ridotto)
   -  Biglietto unico per tutte le mostre di Triennale: 15 euro
-  -  **Descrizione**: Pirelli HangarBicocca, noto anche come HangarBicocca, è uno spazio espositivo dedicato all'arte moderna e contemporanea situato nel quartiere Bicocca di Milano
-###  Pirelli Hangar Bicocca  (riapertura giovedì 29 aprile)
+  -  **Descrizione**: Pirelli HangarBicocca, noto anche come HangarBicocca, è uno spazio espositivo dedicato all'arte moderna e contemporanea situato nel quartiere Bicocca di Milano. Recentemente Pininfarina [è stato partner di Triennale Milano](https://pininfarina.it/it/news-event/pininfarina-partner-of-triennale-milano-for-the-exhibition-the-state-of-the-art-of-architecture-milano/) per la mostra “The State of the Art of Architecture Milano”
+
+
+![800px-Parco_Sempione_(Milan),_Wikimania_2016,_MP_003](https://user-images.githubusercontent.com/46293832/134826993-60bfc70b-5cf6-40ae-8bce-15052ee4427e.jpg)
+![FQ6A7027-©-Triennale-Milano-foto-Gianluca-Di-Ioia-copia-1024x683](https://user-images.githubusercontent.com/46293832/134826994-77db1947-b17c-49bb-ad4b-16f470624056.jpg)
+![triennale-milano-633x400](https://user-images.githubusercontent.com/46293832/134826995-e3b0d566-24a2-4966-9908-2b4297086c3f.jpg)
+
+
+
+
+###  Pirelli HangarBicocca  (riapertura giovedì 29 aprile)
   -  Via Chiese, 2
   -  Dal giovedì alla domenica dalle 10.30 alle 20.30
   -  Ingresso gratuito con prenotazione obbligatoria
   -  La parte riservata ai “Sette Palazzi Celesti” di Anselm Kiefer non sarà visitabile, in quanto hub vaccinale)
   -  Descrizione: pirelli HangarBicocca, noto anche come HangarBicocca, è uno spazio espositivo dedicato all'arte moderna e contemporanea situato nel quartiere Bicocca di Milano.
+
+![Cerith-Wyn-Evans - the-Illuminating-Gas -Exhibition-view-at-HangarBicocca-Milano-2019 -Courtesy-of-the-artist-Pirelli-HangarBicocca -Photo-Agostino-Osio-1-6](https://user-images.githubusercontent.com/46293832/134827023-4e958db3-0d4c-4a7a-9e3c-368b1c68bb20.jpg)
+![Hero_image_Anselm_Kiefer-590x800](https://user-images.githubusercontent.com/46293832/134827026-56788e4b-42f9-45df-a92b-6db022ba836b.jpg)
+
+
+
+
 ###  Museo Nazionale Scienza e Tecnologia “Leonardo da Vinci” (riapertura sabato 1° maggio)
   -  Via San Vittore, 21
   -  Dal martedì al venerdì dalle 9 alle 17
   -  Sabato e domenica dalle 9.30 alle 18.30
   -  Biglietti: intero 10 €, ridotto 7,50 €. Prenotazione obbligatoria
   -  **Descrizione**: il Museo nazionale della scienza e della tecnologia "Leonardo da Vinci" ha sede a Milano; aperto nel 1953, con i suoi 50.000m² complessivi è il più ampio museo tecnico-scientifico in Italia e uno dei maggiori in Europa. 
+
+
+
+![nave-scuola-ebe-preview](https://user-images.githubusercontent.com/46293832/134827069-4ba63edb-bada-40cc-953c-116c9febafd6.jpg)
+![25837_603_0_51ff99be64](https://user-images.githubusercontent.com/46293832/134827071-500db497-134b-4c26-bbf6-7d75faef8295.png)
+![museo-scienza-tecnologia-leonardo-da-vinci-633x400](https://user-images.githubusercontent.com/46293832/134827072-8b7e3fd8-865f-4fcd-9bd5-2145d9e1ff8d.jpg)
+![ee1a5ea6e5ae75a9e8c358ece4962089](https://user-images.githubusercontent.com/46293832/134827073-5ca8086a-f349-48f8-9b71-ea6517414daf.jpg)
+
+
+
+
+
 ###  Gallerie d’Italia  (riapertura da lunedì 26 aprile)
   -  Piazza della Scala, 6
   -  Dal lunedì al giovedì dalle 10 alle 20 (dal 3 maggio 2021 dalle 9.30 alle 19.30)
@@ -251,13 +320,38 @@
   -  Ultimo ingresso un’ora e mezza prima della chiusura
   -  Biglietti: intero 10 €, ridotto 8 €. Prenotazione online consigliata
   -  **Descrizione**: Gallerie d'Italia è l'insieme degli spazi espositivi realizzati da Intesa Sanpaolo per rendere disponibile il proprio patrimonio artistico e architettonico, insieme alle collezioni provenienti dalla Fondazione Cariplo di Milano, altro partner del progetto
+
+
+![gallerie_della_scala_centro_di_milano](https://user-images.githubusercontent.com/46293832/134827103-fd5f22fe-5845-40b5-8491-a30524121aa5.jpg)
+![bg_museo](https://user-images.githubusercontent.com/46293832/134827104-34217def-c5ad-4b05-8a20-3abf102f7350.jpg)
+
+
+
 ###  Museo San Fedele 
   - Piazza San Fedele
   - mercoledì-venerdì dalle 13.30 alle 17
   - Biglietti: intero 5 €, Riduzioni: under 18 anni e universitari: 3 €;  disabili e minori di 6 anni: gratuito
   - **Descrizione**: il Museo San Fedele è un percorso artistico e religioso che si sviluppa nella cinquecentesca chiesa di San Fedele di Milano e negli ambienti circostanti. Promosso dai padri gesuiti, è un esempio di dialogo tra l'arte antica, moderna e contemporanea.
+
+
+
+
+![chiesa-san-fedele9](https://user-images.githubusercontent.com/46293832/134827126-f3cb8101-888f-4082-8e77-df6c6262cc1e.jpg)
+![Museo_San_Fedele](https://user-images.githubusercontent.com/46293832/134827127-deba4388-c6fc-4af6-8f51-69ef03f66494.jpg)
+
+
+
+
 ###  Fondazione Prada (riapertura da giovedì 29 aprile)
   - Largo Isarco, 2
   - Giovedì – domenica dalle 10 alle 19
   - Biglietti: intero 12 €, ridotto 9 €, gratuito under 18
   - **Descrizione**: la Fondazione Prada è un complesso di edifici museali situato a Milano, costituito da una galleria d'arte contemporanea permanente con opere di vari artisti tra cui Jeff Koons, Walter De Maria, Pino Pascali, Damien Hirst, Carsten Höller, e che ospita frequentemente molte esposizioni temporanee. 
+
+
+![3191_n_LEA-absolute-fondazione-prada-hero](https://user-images.githubusercontent.com/46293832/134827154-de2ae7b9-8ef8-4bad-a0b8-6946b951e215.jpg)![Fondazione-Prada_Bas-Princen-5-540x640](https://user-images.githubusercontent.com/46293832/134827155-37e72afc-8ecd-4f50-a1d7-26a14eda5c88.jpg)
+![77883-Fondazione_Prada_-_Atlas_14](https://user-images.githubusercontent.com/46293832/134827158-c261d2c8-c7a6-4f57-aaf0-63a567a05397.jpg)
+
+
+
+
